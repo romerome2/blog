@@ -1,9 +1,8 @@
-# Jeromeee Blog
-
-## Heading 2
-
-hello **welcome** to my blog
+# The blogg
 
 
-'''sql
+
+hello **welcome** to my blog. This is where the jokes will be and the factual stuff.
+ 
+
 
