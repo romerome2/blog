@@ -1,0 +1,3 @@
+# Wall- E review
+
+We all heard about the movie wall E i assume. It's about ai controlling humans when their earth wasn't doing so well then, they opened up their eyes and seen what was happening and another 2 robots fell in love and helped the humans open their eyes and get back to earth.In the movie AI interact with the humans by like helping them do their makeup for females and help them be focused on eating and sleeping. The most interaction i seen was the captain and his robots before hell broke loose. AI at times could be very maniplulative when it coems to interacting with humans. For example during the AI movie called wall E when the captain of the Axiom aksked the ai a question the ai gave him a different answer other than the annswer he asked for.
